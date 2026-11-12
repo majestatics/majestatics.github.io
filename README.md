@@ -1,0 +1,1 @@
+# majestatics.github.io
